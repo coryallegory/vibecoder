@@ -1,8 +1,10 @@
 # Vibe Coder SAO
 Doggo definitely knows what he's doing. Doggo's coding now. With AI. With LEDs. For DEFCON33. It vibes. You vibe too.
 
-## Drops
-Contact me on X/Twitter or Instagram to coordinate onsite at DEFCON33
+### Limited Availability
+https://www.tindie.com/products/39580/
+
+Find me onsite at DEFCON33 or DM on X/Twitter or Instagram
 - https://x.com/coryallegory
 - https://www.instagram.com/corymetcalfe/
 
